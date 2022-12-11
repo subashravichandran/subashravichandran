@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @subashravichandran
+- 👋 Hi, I’m Subash
 - 👀 Currently I do coding and I'm looking forward to do the same in future
 - 💞️ I’m looking to collaborate on any projects
 - 📫 How to reach me - waytosubash@gmail.com
